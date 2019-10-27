@@ -2,6 +2,12 @@
 
 Dokumentasi kajian Ustadz Abu Aslam di Masjid Namira Lamongan.
 
+#### Gerakan yang Tidak Membatalkan Sholat
+
+Kajian dilaksanakan pada tanggal 7 Rabiul Awal 1439 / 26 November 2017.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/gerakan_yang_tidak_membatalkan_sholat.MP3)
+
 #### Menggemarkan Sholat Sunnah Rawatib
 
 Kajian dilaksanakan pada tanggal 2 Safar 1439 / 22 Oktober 2017.
