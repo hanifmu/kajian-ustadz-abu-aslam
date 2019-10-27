@@ -2,6 +2,85 @@
 
 Dokumentasi kajian Ustadz Abu Aslam di Masjid Namira Lamongan.
 
+#### Mengenal 3 Sujud dalam Islam
+
+Kajian dilaksanakan pada tanggal 22 Muharram 1441 / 22 September 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/mengenal_3_sujud_dalam_islam.MP3)
+
+#### Sholat Sunnah Taubat
+
+Kajian dilaksanakan pada tanggal  25 Dzulqa'dah 1440 / 28 Juli 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_sunnah_taubat.MP3)
+
+#### Sholat di Kendaraan
+
+Kajian dilaksanakan pada tanggal 19 Syawal 1440 / 23 Juni 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_di_kendaraan.MP3)
+
+#### Seputar Sahur & Ifthar Sesuai Sunnah
+
+Kajian dilaksanakan pada tanggal 23 Sya'ban 1440 / 28 April 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/seputar_sahur_&_ifthar_sesuai_sunnah.MP3)
+
+#### Sholat dengan Memakai Alas Kaki
+
+Kajian dilaksanakan pada tanggal 19 Jumadil Akhir 1440 / 24 Februari 2019 dan  17 Rajab 1440 / 24 Maret 2019.
+
+- [Download audio kajian #1](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_dengan_memakai_alas_kaki.MP3)
+- [Download audio kajian #2](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_dengan_memakai_alas_kaki-2.MP3)
+
+#### Sholat Tahajud & Sholat Witir
+
+Kajian dilaksanakan pada tanggal 21 Jumadil Awal 1440 / 27 Januari 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_tahajud_&_sholat_witir.MP3)
+
+#### Sholat Tahajud
+
+Kajian dilaksanakan pada tanggal 17 Rabiul Awal 1440 / 25 November 2018.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_tahajud.mp3)
+
+#### Hidupkan Sholat Dalam Rumah Tanggamu
+
+Kajian dilaksanakan pada tanggal 19 Safar 1440 / 28 Oktober 2018.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/hidupkan_sholat_dalam_rumah_tanggamu.MP3)
+
+#### Sholatnya Orang Sakit
+
+Kajian dilaksanakan pada tanggal 14 Dzulhizah 1439 / 26 Agustus 2018.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholatnya_orang_sakit.mp3)
+
+#### Sholat Sunnah Al Awwabin
+
+Kajian dilaksanakan pada tanggal 9 Dzulqaidah 1439 / 22 Juli 2018.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_sunnah_al_awwabin.mp3)
+
+#### Adab Buang Hajat Sesuai Sunnah
+
+Kajian dilaksanakan pada tanggal 21 Rajab 1439 / 08 April 2018.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/adab_buang_hajat_sesuai_sunnah.mp3)
+
+#### Sunnah-Sunnah yang Dikerjakan di Dalam Sholat
+
+Kajian dilaksanakan pada tanggal 25 Jumadil Awal 1439 / 11 Februari 2018.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sunnah-sunnah_yang_dikerjakan_di_dalam_sholat.mp3)
+
+#### Sholat Kusuf & Khusuf
+
+Kajian dilaksanakan pada tanggal 11 Jumadil Awal 1439 / 28 Januari 2018.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/sholat_kusuf_&_khusuf.mp3)
+
 #### Gerakan yang Tidak Membatalkan Sholat
 
 Kajian dilaksanakan pada tanggal 7 Rabiul Awal 1439 / 26 November 2017.
