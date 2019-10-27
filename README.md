@@ -2,6 +2,12 @@
 
 Dokumentasi kajian Ustadz Abu Aslam di Masjid Namira Lamongan.
 
+#### Menggemarkan Sholat Sunnah Rawatib
+
+Kajian dilaksanakan pada tanggal 2 Safar 1439 / 22 Oktober 2017.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/menggemarkan_sholat_sunnah_rawatib.MP3)
+
 #### Sunah-Sunah Nabi yang Mulai Ditinggalkan
 
 Kajian dilaksanakan pada tanggal 20 Dzulqa'dah 1438 / 13 Agustus 2017.
