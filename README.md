@@ -2,6 +2,12 @@
 
 Dokumentasi kajian Ustadz Abu Aslam di Masjid Namira Lamongan.
 
+#### Sunah-Sunah Nabi yang Mulai Ditinggalkan
+
+Kajian dilaksanakan pada tanggal 20 Dzulqa'dah 1438 / 13 Agustus 2017.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/amalan_yang_pahalanya_setara_haji_dan_umroh.MP3)
+
 #### Amalan yang Pahalanya Setara Haji dan Umroh
 
 Kajian dilaksanakan pada tanggal 30 Syawal 1438 / 23 Juli 2017.
