@@ -2,6 +2,12 @@
 
 Dokumentasi kajian Ustadz Abu Aslam di Masjid Namira Lamongan.
 
+#### Menjadi Imam Dalam Sholat
+
+Kajian dilaksanakan pada tanggal 27 Rabiul Awal 1441 / 24 November 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/menjadi_imam_dalam_sholat.MP3)
+
 #### Mengenal 3 Sujud dalam Islam
 
 Kajian dilaksanakan pada tanggal 22 Muharram 1441 / 22 September 2019.
@@ -93,7 +99,7 @@ Kajian dilaksanakan pada tanggal 2 Safar 1439 / 22 Oktober 2017.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/menggemarkan_sholat_sunnah_rawatib.MP3)
 
-#### Sunah-Sunah Nabi yang Mulai Ditinggalkan
+#### Sunnah-Sunnah Nabi yang Mulai Ditinggalkan
 
 Kajian dilaksanakan pada tanggal 20 Dzulqa'dah 1438 / 13 Agustus 2017.
 
