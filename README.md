@@ -2,6 +2,12 @@
 
 Dokumentasi kajian Ustadz Abu Aslam di Masjid Namira Lamongan.
 
+#### Menjawab Beberapa Pertanyaan Kontemporer
+
+Kajian dilaksanakan pada tanggal 11 Rabiul Akhir 1441 / 8 Desember 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/menjawab_beberapa_pertanyaan_kontemporer.MP3)
+
 #### Menjadi Imam Dalam Sholat
 
 Kajian dilaksanakan pada tanggal 27 Rabiul Awal 1441 / 24 November 2019.
