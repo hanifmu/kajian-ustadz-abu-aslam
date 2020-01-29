@@ -2,6 +2,12 @@
 
 Dokumentasi kajian Ustadz Abu Aslam di Masjid Namira Lamongan.
 
+#### Adab Muslim Ketika Berada Di Dalam Masjid
+
+Kajian dilaksanakan pada tanggal 1 Jumadil Akhir 1441 / 26 Januari 2020.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-abu-aslam/raw/master/adab_muslim_ketika_di_dalam_masjid.MP3)
+
 #### Menjawab Beberapa Pertanyaan Kontemporer
 
 Kajian dilaksanakan pada tanggal 11 Rabiul Akhir 1441 / 8 Desember 2019.
